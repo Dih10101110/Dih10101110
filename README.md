@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dih10101110
-- 💞️ procuro colaborarem absolutamente nada 
+- 💞️ procuro colaborar em absolutamente nada 
 - 📫 Como chegar até mim simples... só chegar 
 <3
 ---
