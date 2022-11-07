@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dih10101110
-- 💞️ I’m looking to collaborate on absolutamente  nada 
+- 💞️ procuro colaborarem absolutamente nada 
 - 📫 Como chegar até mim simples... só chegar 
 <3
 ---
